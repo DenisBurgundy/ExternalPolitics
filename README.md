@@ -8,4 +8,8 @@ Thanks to the efforts of his attorneys and vassals João Velho, João Martins, a
 
 ## Leão and Castela: Definition of frontiers
 
+The first years of Denis' reign saw the civil war in Castile, which pits Alfonso X the Wise against Prince Sancho. In April 1282 Denis sends an embassy of condolence to Castile on the death of the troubadour king. However, the situation between Portugal and Leão-Castle was not entirely peaceful: since the conquest of the Algarve, both kings of the west of the Peninsula have claimed the title of King of the Algarve, a fact that bothered the Portuguese king a lot.
 
+Despite this, relations between the two kingdoms were still stable, having even allied in December 1288 against Aragon, who fought between the spring and summer of 1289. The real break came in 1293 when Denis protects the Castilian magnate João Nunes de Lara. The situation seems to get worse when Sancho arranges for his son Fernando the hand of Princess Isabel, daughter of Philip IV of France.
+
+In his will, Sancho IV of Castile had determined that the towns of Moura and Serpa, and the castles of Mourão and Noudar, as well as the castles and towns of Arronches and Aracena, unfairly taken from Portugal and found themselves unduly, should be returned to the Portuguese kingdom. retained by the Castilians. The Castilian king dies on April 25, 1295, and on October 20, these goods are officially handed over to Portugal, more specifically to the crown porter, João Rodrigues, in the name of Denis. However, it would be the knight Nuno Fernandes Cogominho who would come to assume his possession in the name of the king.
